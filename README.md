@@ -1,1 +1,0 @@
-# Avoid26rus
